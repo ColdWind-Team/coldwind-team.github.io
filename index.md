@@ -18,3 +18,7 @@
 
 ## 友情链接
   - [XChat](https://xq.kzw.ink/)
+
+
+
+<a href="https://icp.gov.moe/?keyword=20232340" target="_blank">萌ICP备20232340号</a>
